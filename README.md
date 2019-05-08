@@ -1,0 +1,2 @@
+# kasihfree
+safelink
